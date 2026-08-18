@@ -1,5 +1,5 @@
 # Presentación
-Hola! Mi nombre es [COMPLETAR].
+Hola! Mi nombre es Thiago.
 
 En mi tiempo libre me gusta...
 
